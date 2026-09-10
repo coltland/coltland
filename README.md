@@ -8,8 +8,8 @@
 </p>
 
 <p align="center">
-<a href="https://guns.lol/litanchovy">I</a>
-<a href="https://litanchovy.atabook.org/"> II</a>ㅤㅤ
+<a href="https://guns.lol/litanchovy">1</a>
+<a href="https://litanchovy.atabook.org/">2</a>ㅤㅤ
 
 
 <p align="center">
